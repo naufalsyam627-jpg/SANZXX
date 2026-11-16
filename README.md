@@ -1,2 +1,2 @@
 # SANZXX
-mau main Minecraft 
+AIDROP HUNTER
